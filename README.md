@@ -1,4 +1,4 @@
-Second-year undergraduate Computer Science student at Queen's University.
+Third-year undergraduate Computer Science student at Queen's University.
 
 My life is being decayed and ruined by RTS grand strategy games.
 
